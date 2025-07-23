@@ -24,6 +24,7 @@ Updated **daily** — based on real traffic and order data.
 - 🌎 Website: [https://bestsmmproviders.com](https://bestsmmproviders.com)
 - 🐦 Twitter/X: [https://x.com/Bestsmmprovider](https://x.com/Bestsmmprovider)
 - 📺 YouTube: [https://www.youtube.com/@BestSmmProviders](https://www.youtube.com/@BestSmmProviders)
+- 📽️ Vimeo: [https://vimeo.com/bestsmmproviders]
 - 👤 Gravatar: [https://gravatar.com/butteryd455d6af03](https://gravatar.com/butteryd455d6af03)
 - 🔝 Daily Top 10: [https://bestsmmproviders.com/todays-top-ten-smm-panels/](https://bestsmmproviders.com/todays-top-ten-smm-panels/)
 
